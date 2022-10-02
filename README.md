@@ -1,0 +1,2 @@
+# jancok
+SudahMati
